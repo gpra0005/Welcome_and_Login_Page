@@ -4,7 +4,7 @@ Invictus Technologies
 
 This is just the beginning.
 
-Stay tuned and pulls your socks up.
+Stay tuned and pull your socks up.
 Because we are about to knock em' off.
 
 
